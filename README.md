@@ -6,7 +6,13 @@ Aqui embaixo esta o sobre mim 😄
 Sobre Mim:
 
 ○ ✅ Nome: Iago
+
 ○ 😂 Idade: 18
+
 ○ 🌎 País: Brasil
+
 ○ 🗺️ Estado: Bahia (Oh sonin bom em meu fi)
+
+
+
 éh isso adios amigoo 😂😂😂😂😂😂😂😂
