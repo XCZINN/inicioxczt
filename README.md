@@ -1,5 +1,5 @@
 # inicioxczt
->Oi meu nome é iago. Eu gosto de criar bots para o discord usando discord.js e Lua to tentando aprender o discord.js kk Meu objetivo e me tornar um profissional em cirar bots �
+>Oi meu nome é iago. Eu gosto de criar bots para o discord usando discord.js e Lua to tentando aprender o discord.js kk Meu objetivo e me tornar um profissional em criar bots 
 
 Aqui embaixo esta o sobre mim 😄
 
